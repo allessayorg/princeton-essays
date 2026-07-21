@@ -1,5 +1,5 @@
 ## 🔗 Explore More
 
-Want a complete guide with fresh examples and step-by-step instructions? 
+Looking for a detailed guide with practical examples and step-by-step advice?
 
-👉 Visit: [Allessay.org – Princeton Supplemental Essays: Every Prompt and How to Answer It](https://allessay.org/princeton-supplemental-essays/)
+👉 Visit: [Princeton Supplemental Essays: Every Prompt and How to Answer It](https://allessay.org/princeton-supplemental-essays/)
