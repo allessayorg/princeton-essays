@@ -1,4 +1,5 @@
 ## 🔗 Explore More
 
 Want a complete guide with fresh examples and step-by-step instructions? 
-👉 Visit: [AllEssay.org – Princeton Supplemental Essays](https://allessay.org/princeton-supplemental-essays/)
+
+👉 Visit: [Allessay.org – Princeton Supplemental Essays: Every Prompt and How to Answer It](https://allessay.org/princeton-supplemental-essays/)
